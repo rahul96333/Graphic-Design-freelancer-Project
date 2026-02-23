@@ -1,4 +1,3 @@
-# Graphic-Design-freelancer-Project
 
 # Supplend Skincare - Social Media Advertising Campaign
 
